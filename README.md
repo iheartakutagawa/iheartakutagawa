@@ -1,16 +1,13 @@
-## Hi there 👋
+# i love eating cardboard
 
-<!--
-**iheartakutagawa/iheartakutagawa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+um. so sorry. my pronouns are he/she/they/zie/sie/ey/ve/tey/e/ce/co/cy/hey/ne/qui/xe/xie/yo/ze/ne/nem/nis/nix/no/ny/one/ons/ot/other/ou/peh/per/phey/pic/pur/py/q/qe/qu/quoi/re/rie/sae/saw/say/se/sei/self/shi/sho/shy/sie/swe/thae/the/thee/thi/this one/thon/thy/tre/ty/tyr/v/vae/ver/vi/vie/vo/voh/vy/wy/xae/xer/xet/xey/xi/xie/xit/xt/xy/xye/xyz/yey/yo/yre/yt/z/za/zae/zay/zee/zed/zet/zey/zhe/zhey/zhi//s/?s/ðe/þe/ȝe but i prefer being called he/him
 
-Here are some ideas to get you started:
+## "The weak will die, die.. and make way for others."
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![f8eb15b44302ad50530d94e6cae242e0](https://github.com/user-attachments/assets/d4e968a3-41cf-4a48-89e5-0f580699fc4a)
+man i love this guy so much who wouldn't hate him.. yeah he did severe crimes but like i can fix him
+
+![ec51c32fb5a808327c6789e73031e105](https://github.com/user-attachments/assets/2d9924ee-9ab2-4e5e-8d6a-e87ba7c45659)
+![f12cda7636e317195502747af0d675ad](https://github.com/user-attachments/assets/5698733b-51c0-4770-8fa3-9822f1e2b2a4)
+i heart akutagawa
+AND my wife
