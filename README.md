@@ -4,7 +4,7 @@ um. so sorry. my pronouns are he/she/they/zie/sie/ey/ve/tey/e/ce/co/cy/hey/ne/qu
 ![image](https://github.com/user-attachments/assets/196c2c4d-80eb-4c79-8a9b-88c04539c452)
 cait gets very freaky at night
 
-# "The weak will die, die.. and make way for others." ════════════════════════════════════════⚠︎════════════════════════════════════════════════![tumblr_b9a20ba3c84f7a894a91e7f244e00d7d_5ab01c77_1280](https://github.com/user-attachments/assets/f42cc41f-e465-4699-97c7-d32f985a173c)
+# "The weak will die, die.. and make way for others." ════════════════════════════════════════⚠︎════════════════════════════════════════![tumblr_b9a20ba3c84f7a894a91e7f244e00d7d_5ab01c77_1280](https://github.com/user-attachments/assets/f42cc41f-e465-4699-97c7-d32f985a173c)
 
 
 ![f8eb15b44302ad50530d94e6cae242e0](https://github.com/user-attachments/assets/d4e968a3-41cf-4a48-89e5-0f580699fc4a)
