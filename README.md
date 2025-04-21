@@ -1,6 +1,6 @@
 ### i love eating cardboard
 
-um. so sorry. my pronouns are he/she/they/zie/sie/ey/ve/tey/e/ce/co/cy/hey/ne/qui/xe/xie/yo/ze/ne/nem/nis/nix/no/ny/one/ons/ot/other/ou/peh/per/phey/pic/pur/py/q/qe/qu/quoi/re/rie/sae/saw/say/se/sei/self/shi/sho/shy/sie/swe/thae/the/thee/thi/this one/thon/thy/tre/ty/tyr/v/vae/ver/vi/vie/vo/voh/vy/wy/xae/xer/xet/xey/xi/xie/xit/xt/xy/xye/xyz/yey/yo/yre/yt/z/za/zae/zay/zee/zed/zet/zey/zhe/zhey/zhi//s/?s/ðe/þe/ȝe but i prefer being called he/him
+um. so sorry. my pronouns are he/she/they/zie/sie/ey/ve/tey/e/ce/co/cy/hey/ne/qui/xe/xie/yo/ze/ne/nem/nis/nix/no/ny/one/ons/ot/other/ou/peh/per/phey/pic/pur/py/q/qe/qu/quoi/re/rie/sae/saw/say/se/sei/self/shi/sho/shy/sie/swe/thae/the/thee/thi/this one/thon/thy/tre/ty/tyr/v/vae/ver/vi/vie/vo/voh/vy/wy/xae/xer/xet/xey/xi/xie/xit/xt/xy/xye/xyz/yey/yo/yre/yt/z/za/zae/zay/zee/zed/zet/zey/zhe/zhey/zhi//s/?s/ðe/þe/ȝe/twink but i prefer being called he/him
 ![image](https://github.com/user-attachments/assets/196c2c4d-80eb-4c79-8a9b-88c04539c452)
 cait gets very freaky at night
 
